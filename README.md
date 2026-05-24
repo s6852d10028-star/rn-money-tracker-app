@@ -5,10 +5,7 @@
 <kbd><img width="250" alt="S__8282116" src="https://github.com/user-attachments/assets/1f675a6b-ed20-42da-83a8-9aea7570c3b3" /></kbd>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <kbd><img width="250" alt="S__8282117" src="https://github.com/user-attachments/assets/cb582c9b-6f81-4278-bbb6-45225bdd7ef8" /></kbd>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <kbd><img width="250" alt="S__8282120" src="https://github.com/user-attachments/assets/06b51f66-3518-48cd-8dce-1483ff705621" /></kbd>
-
-<br><br>
 
 <kbd><img width="250" alt="S__8282119" src="https://github.com/user-attachments/assets/290fe696-fc75-44f3-abfd-be4fbc4fcacc" /></kbd>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
