@@ -2,7 +2,7 @@
 
 ## โปรเจ็ก รายรับรายจ่าย
 
-<kbd><img width="250" alt="S__8282116" src="https://github.com/user-attachments/assets/1f675a6b-ed20-42da-83a8-9aea7570c3b3" /></kbd>
+<kbd><img width="250" alt="S__8306691" src="https://github.com/user-attachments/assets/3f2ea716-8ed2-402d-ba7f-aa10a95d898c" /></kbd>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <kbd><img width="250" alt="S__8282117" src="https://github.com/user-attachments/assets/cb582c9b-6f81-4278-bbb6-45225bdd7ef8" /></kbd>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
